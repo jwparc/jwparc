@@ -3,7 +3,7 @@ Currently, I’m preparing for a master’s in statistics at McGill University, 
 - 📫 You can each me at qkrwlsdn0650@icloud.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have a (identical) twin brother!
-- ✨ My hobbies include but not restricted to: Classical Piano, Cello, Watcing Travel Vlogs, Running, Learning Languages(French, German, and Hebrew)
+- 🎶 Hobbies(just to name a few): Classical Piano, Cello, Watcing Travel Vlogs, Running, Learning Languages(French, German, and Hebrew)
 
 
 <!---
